@@ -31,6 +31,7 @@ For over 30 years, SCAA has been dedicated to creating a vibrant specialty coffe
 ## Another Image:
 
 ![Picture of mountains](/img/green-mtn-wash-kitsap-featured.jpg)
+![Kennedy Saddle](https://lh3.googleusercontent.com/WFrO4A34VNSqXjTmt7QS-U0cfmTinq9lmU8bqptrthY5-SC7HILusr0fryt8TC8PpuapAfkJz4WpR9jVpugmcAA_9dJ6dWAPz6ugEMT2x_gDpcJQwPhGqNgu9a_NU8ytZU7sBPjDv5Eaim7iZkmqeqtOORb-1TAsJPaYgFn_5yxVbwrm0BQjEjJwClJbBpJVpgh0GOh_yJLP414vf0qjyK1uDdJl0Hivm3airs2pRGe9XuhhDwBcNfPyB4OSoLpyXXCO4uqOAsNtMa-UIDpBkiIvZ1Sx4Uo1J8tN4S4lYLIbOUxMjI6J7eaoPwDlqvDZUStsoAVI057t9nt3ySw1oHqqlCpappEox84I4jTW9prPLrA6OvUKjV4ism2CSLyqjc4jECNq1v8mjN-1NweSe0AQXSxpdN55SvWQ49rd68o6yOAneyJK0QEDTjncxC4ypi8q3CiICIGzuKYjz8cycyqMj8-52-MkrIlrMICb4NQSMAGHFatSHYDRWya71L6kTwYQIvke8tdtc7kg9qON7sXy16uGnnF3x4BiBcFnA1P_gRuaBQfnUGakuah7AKiKehkIAFvn2_UPnYTemoPt89rd9tyDT9HGYVDLASXdo8df6fuYgeYDO9W2lD8OluyefEBwjAktuJQs5kfDYNBJ6ri26vAPZdMhbTvU7BoFa6zmEkMhgeFXhnBUUf2lWkIuZff4hx6K3I_mP95vWOFKd8U5D3VOxa3miP8qkgI=w1384-h1038-no)
 
 Coffee cupping, or coffee tasting, is the practice of observing the tastes and aromas of brewed coffee. It is a professional practice but can be done informally by anyone or by professionals known as "Q Graders". A standard coffee cupping procedure involves deeply sniffing the coffee, then loudly slurping the coffee so it spreads to the back of the tongue.
 
